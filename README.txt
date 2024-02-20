@@ -1,0 +1,1 @@
+THANK YOU FOR DOWNLOAD. RUN "ModLoader 4.12v 9 to set it up and then you can open the "MODS" File to add in mods. This mod also works in Roblox studio. Thank you for your download.
